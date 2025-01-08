@@ -1,4 +1,4 @@
-Here’s the cleaned-up version for your GitHub profile description, ready to be copied and pasted directly:
+
 
 ---
 
